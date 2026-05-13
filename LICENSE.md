@@ -1,4 +1,4 @@
-# 
+# updated Adobe Audition for macOS LUT | color-correction + 4K-export is the best Adobe Audition for macOS lut, featuring color-correction and 4K-export. Safe, efficient, and
 
 
 
